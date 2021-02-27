@@ -10,7 +10,7 @@ Sony 為了慶祝這一時刻，再一次推出了**Play At Home**，回饋所�
 
 ## 自2021年3月2日起
 
--自台灣時間/香港時間 2021年3月2日上午5時至2021年4月1日晚上9點，PlayStation和Insomniac Games將於PlayStation Store限時開放《Ratchet & Clank》PS4版免費下載。領取遊戲後可永久保存暢玩。這款2016年的PS4動作冒險遊戲由Insomniac Games出品，刺激對戰與喜劇元素共冶一爐，帶大家重溫廣受愛戴的PlayStation英雄——拉捷特與克拉克的出身故事。
+- 自台灣時間/香港時間 2021年3月2日上午5時至2021年4月1日晚上9點，PlayStation和Insomniac Games將於PlayStation Store限時開放《Ratchet & Clank》PS4版免費下載。領取遊戲後可永久保存暢玩。這款2016年的PS4動作冒險遊戲由Insomniac Games出品，刺激對戰與喜劇元素共冶一爐，帶大家重溫廣受愛戴的PlayStation英雄——拉捷特與克拉克的出身故事。
 
 
 sony表示未來幾週將會公佈許多的精選內容，希望提供這一些精選的遊戲和內容組合的這個消息能讓玩家的生活更加美好。我們很榮幸能夠為玩家的生活帶來一些娛樂，也非常感謝能夠成為玩家生活的一部分。
