@@ -1,7 +1,7 @@
-#「Play At Home」回歸：自3月2日起，提供四個月PlayStation免費遊戲
+# 「Play At Home」回歸：自3月2日起，提供四個月PlayStation免費遊戲
 
 
-[play at home](asset/c1da04888514f01ef96a8a7fbe1a73da2abdb784.webp)
+![play at home](asset/c1da04888514f01ef96a8a7fbe1a73da2abdb784.webp)
 )
 
 自武漢肺炎的影響，許多醫生和護士極力防疫，和全世界人民的不懈努力下，我們能在這漫長才能看到希望。
